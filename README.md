@@ -1,1 +1,1 @@
-My first readme
+My Name is Samuel Kimotho Githinji
